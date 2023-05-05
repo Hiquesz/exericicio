@@ -1,1 +1,1 @@
-ai tome 
+ai tome e dnv e dnv
